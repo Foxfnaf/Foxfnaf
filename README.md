@@ -1,4 +1,4 @@
-## Hi I am Foxfnaf and I am a owner of DreamFox Studio
+## Hi I am Foxyfnaf and I am a owner of DreamFox Studio
 <!--
 **Foxfnaf/Foxfnaf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
